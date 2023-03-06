@@ -1,1 +1,0 @@
-Joana Sánchez's portfolio 
